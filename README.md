@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zamanilyas
+- 👀 I’m interested in anything that will allow me to demonstrate, polish my skills and opportunity to learn something new.
+- 🌱 I’m currently learning Agile Project Management and Latest Trends in Software Development.
+- 💞️ I’m looking to collaborate on anything where I can utilize my Project Management Skills.
+- 📫 How to reach me at https://www.linkedin.com/in/gulzamanilyas
